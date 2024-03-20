@@ -1,1 +1,0 @@
-# JohnJParry.github.io
